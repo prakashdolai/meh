@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @prakashinfo18
+- 👀 I’m interested in software
+- 🌱 I’m currently studying 11th
+- 💞️ I’m looking to crack an iit seat 
